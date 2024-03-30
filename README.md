@@ -13,7 +13,7 @@
 - 🤝 Estou procurando ajuda com Criador/Gerenciador de conteúdo
 
 - 📫 Como me encontrar &nbsp;&nbsp;&nbsp;
-  *juliobaldoo10@gmail.com**
+  *juliobaldoo10@gmail.com*
 
 <h3 align="left">Conecte-se comigo:</h3>
 <p align="left">
