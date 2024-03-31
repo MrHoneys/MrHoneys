@@ -1,4 +1,4 @@
-![download](https://github.com/MrHoneys/MrHoneys/assets/143344101/57ae6a75-1346-46ba-82c2-fbbcefaf86ff)
+![Coding Cat](https://64.media.tumblr.com/bb892783f624607131ba453e7f472bb9/tumblr_ptuu10mAFR1qbw2q1o1_400.gif)
 
 
 <h1 align="center">Olá 👋, eu sou o Sr. Honeys</h1>
